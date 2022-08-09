@@ -1,6 +1,6 @@
-# Page Title
+# Kevin's Fan Page
 
-A short introduction for the top of your main page
+A website dedicated to how cool and swag Kevin Paulino is
 
 
-More content you want on your page
+use this website to stroke my ego and give me compliments on how I'm such a good and awesome person
